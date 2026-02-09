@@ -1,2 +1,14 @@
-<p align="center"> DAWG </p> <p align="center"> <img src="https://64.media.tumblr.com/2ec34402b655545ebdbf052e5414f6f0/3cc3f7927183aa12-b5/s1280x1920/e7676ab1d6f843466e478320338741318d88b3e0.png" width="400" height="400" border="10"/> <p align="center"> he/him, xntp </p> <p align="center"> no dni, just be respectful </p>
+<p align="center">
+
+<img align="left" src="https://64.media.tumblr.com/96107593b297865a2a9cfe061ce0d2fe/e73605551b5fb54a-3a/s640x960/c8208c129001a1edc775343992a6fc84754c301a.pnj" height="280px" alt="art by vinegar-rights on tumblr"/><img src="https://i.imgur.com/gN8VK24.png" width="359px"><img align="right" src="https://64.media.tumblr.com/bac84e712462f441514e7d0464c7fc42/0d3fcab1239245b8-54/s1280x1920/9554a7921c8361e6eba2013e806f258c2ff3fe79.png" height="280px" alt="art by vinegar-rights on tumblr"/><br>
+</p>
+  <h3 align="center">
+(( DAWG ))</h3>
+<p align="center">
+<sub><code>scp hlvrai hl postal rdr2 charborg linchfd</sub></code><br>
+dawg/dude/bro ㅤhe/him<br>no dni, i block freely<br>
+  <sub>always c+h freely & w2i unless my name says otherwise</sub><br>
+  <a href= "https://rentry.co/scp2">neocities</a>  ㅤ ㅤ<a href= "https://rentry.co/scp2">strawpage</a><br>
+  <br>
+<img src="https://komarev.com/ghpvc/?username=cleffed&style=flat-square&color=c22323&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵VISITORS" alt=""/>
 </p>
