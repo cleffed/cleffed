@@ -1,6 +1,6 @@
 <p align="center">
 
-<img align="left" src="https://64.media.tumblr.com/96107593b297865a2a9cfe061ce0d2fe/e73605551b5fb54a-3a/s640x960/c8208c129001a1edc775343992a6fc84754c301a.pnj" height="180px" alt="art by vinegar-rights on tumblr"/><img src="https://i.imgur.com/gN8VK24.png" width="359px"><img align="right" src="https://64.media.tumblr.com/bac84e712462f441514e7d0464c7fc42/0d3fcab1239245b8-54/s1280x1920/9554a7921c8361e6eba2013e806f258c2ff3fe79.png" height="180px" alt="art by vinegar-rights on tumblr"/><br>
+<img align="left" src="https://64.media.tumblr.com/96107593b297865a2a9cfe061ce0d2fe/e73605551b5fb54a-3a/s640x960/c8208c129001a1edc775343992a6fc84754c301a.pnj" height="250px" alt="art by vinegar-rights on tumblr"/><img src="https://i.imgur.com/gN8VK24.png" width="359px"><img align="right" src="https://64.media.tumblr.com/bac84e712462f441514e7d0464c7fc42/0d3fcab1239245b8-54/s1280x1920/9554a7921c8361e6eba2013e806f258c2ff3fe79.png" height="250px" alt="art by vinegar-rights on tumblr"/><br>
 </p>
   <h3 align="center">
 (( DAWG ))</h3>
