@@ -7,7 +7,7 @@
 <sub><code>scp hlvrai hl postal portal disco elysium charborg</sub></code><br>
 dont be afraid to int first if you want to bmf or just chat <3<br>
   <sub>always c+h freely & w2i unless my name says otherwise</sub><br>
-  <a href= "https://rentry.co/scp2">neocities</a>  ㅤ ㅤ<a href= "https://rentry.co/scp2">strawpage</a><br>
+  <a href= "https://github.com/monitorgirlfriend">main</a>  ㅤ ㅤ<a href= "https://clef.atabook.org">atabook</a><br>
   <br>
 <img src="https://komarev.com/ghpvc/?username=cleffed&style=flat-square&color=c22323&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵VISITORS" alt=""/>
 </p>
