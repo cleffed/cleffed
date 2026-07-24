@@ -4,7 +4,7 @@
 </p>
   <h3 align="center">cleffed</h3>
 <p align="center">
-<sub><code>scp hlvrai hl postal portal rdr2 charborg</sub></code><br>
+<sub><code>scp hlvrai hl postal portal disco elysium charborg</sub></code><br>
 dont be afraid to int first if you want to bmf or just chat <3<br>
   <sub>always c+h freely & w2i unless my name says otherwise</sub><br>
   <a href= "https://rentry.co/scp2">neocities</a>  ㅤ ㅤ<a href= "https://rentry.co/scp2">strawpage</a><br>
